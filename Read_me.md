@@ -1,2 +1,2 @@
 #Example
-All teh luck with me!
+All the luck with me!
